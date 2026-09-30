@@ -7,7 +7,6 @@ Track record:
 - 90% top art college acceptance rate.
 - $100k average scholarship awarded.
 - 150+ Scholastic Art award winners each year.
-- Recognized as a National Silver Medal Winning Program.
 
 Services:
 - Portfolio Development: work with a professional teacher to explore mediums and develop a cohesive body of work for an AP Art or college portfolio, with feedback and guidance.
@@ -16,4 +15,4 @@ Services:
 
 Students have been accepted to schools including RISD, Pratt, Parsons, School of Visual Arts, School of the Art Institute of Chicago, Art Center College of Design, UCLA, UC Berkeley, UC San Diego, Carnegie Mellon, University of Michigan, USC, UT Austin, and Harvard.
 
-Portfolio Development classes are offered at the Cupertino and Fremont campuses. For details on getting started, book a free trial or contact the school.
+Portfolio Development classes are offered at the Cupertino, Mountain View, South San Jose, Belmont and Fremont campuses. For details on getting started, book a free trial or contact the school.
