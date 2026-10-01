@@ -3,7 +3,7 @@
 The safety of our families is CalColor's number one priority.
 
 Art materials:
-- The paint and materials used in our in-person classes are non-toxic and safe. Families with specific concerns or sensitivities can contact us for more details.
+- The paint and materials used in our in-person fine art classes are non-toxic and safe. Families with specific concerns or sensitivities can contact us for more details. Digital art class requires students to use their own devices (for example iPad and Apple Pencil)
 
 Studio safety:
 - Parking lot safety: parents are required to accompany children into the building for drop-off and pick-up.
